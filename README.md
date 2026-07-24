@@ -1,5 +1,5 @@
 ### ☀️ Julius Lebbatt | Architect of Tomorrow
-**Founder @ Axzyrion | Creator of Amnir**
+**Founder @ Axzyrion | Creator of Amneer**
 
 Building systems at the intersection of Artificial Intelligence, Strategic Management, and High Aesthetics. 
 
